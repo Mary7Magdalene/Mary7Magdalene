@@ -1,6 +1,6 @@
 -👋 Hi there! I'm Mnayi Magdalene, a Machine Learning and AI enthusiast.
 
-🌍 I believe in the power of technology to solve real-world problems.
+🌍 I am an AI /ML enthusiast in solving real-world problems.
 
 🔍 Currently exploring various applications of AI in healthcare, finance, and sustainability.
 
