@@ -10,7 +10,7 @@
 
 🌱 Always learning and staying updated with the latest trends in AI and ML.
 
-🤝 Open to collaboration on projects that make a difference!
+🤝 Open to collaboration on projects and learning sessions to make a difference!
 
 📫 Let's connect: marymagdangie@gmail.com
 
